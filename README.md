@@ -5,7 +5,4 @@ sadaddfsfefewf
 dfsafggdfgd
 sadawdwdd
 сфвfgdgd
-dvdffs
-fdsffsdf
-jyjdhxhjushh
-xcfdgdg
+dvd
