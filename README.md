@@ -5,7 +5,4 @@ sadaddfsfefewf
 dfsafggdfgd
 s
 ggsgfd
-czdfgzesfe
-cdsfgstgrdse
-gfxbfdghc
-vzdcszcX
+cz
