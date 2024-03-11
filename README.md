@@ -1,11 +1,4 @@
 2qw
 fedfrfeafw
 zxzxfd
-dfhdfggd
-fghdfgfgdx
-fdsfsdfds
-fghgfhfzg
-gfgdsfsd
-lhdgd
-fggdg
-ghhdfgs
+dfh
